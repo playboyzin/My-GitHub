@@ -1,0 +1,5 @@
+- 👋 Oi meu nome FALSO é @playboyzin
+- 👀 Estou interessado em programação
+- 🌱 Atualmente estou aprendendo portugûes, matemática, história, programação, ciências, geográfia, espanhol, física, inglês e etc
+- 💞️ Estou procurando colaborar em NADA
+- 📫 Como chegar até mim: CASA
